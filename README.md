@@ -1,6 +1,4 @@
-## Hi there 👋
-
-# Simon Hedley
+## Simon Hedley
 
 **Author. Strategic Alchemist™. The Secret Weapon for Good People Doing Great Things.**
 
